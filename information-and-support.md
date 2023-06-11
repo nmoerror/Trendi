@@ -1,0 +1,1 @@
+Trendi Support is your one-stop destination for all things related to the Trendi app. Get assistance, access helpful resources, and stay updated with the latest trends. Visit www.trendiapp.au for a seamless and engaging Trendi experience.
